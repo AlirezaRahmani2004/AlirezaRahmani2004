@@ -2,7 +2,7 @@
 - 👀 I’m interested in Programming, Working, video games and so more.
 - 🌱 I’m currently learning Python in case of mastering them
 - 💞️ I’m looking to collaborate on Every developers. (Whatever it's Bluesky team or it's another developer)
-- 📫 How to reach me alirezarahmani2004 (My Discord account), https://bsky.app/profile/alirezarahmani2004.bsky.social (My Bluesky account)
+- 📫 How to reach me alirezarahmani2004 (My Discord account), https://bsky.app/profile/alirezarahm2004.bsky.social (My Bluesky account)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: That's secret.
 
